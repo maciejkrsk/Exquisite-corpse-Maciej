@@ -1,1 +1,1 @@
-The exquisite corpse 
+I have a stick !
